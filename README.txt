@@ -59,3 +59,8 @@ Change log:
 
 Cheers,
 ashbb (Satoshi Asakawa)
+
+Cheers,
+Ed O'Neill
+Again...a great little course!
+
